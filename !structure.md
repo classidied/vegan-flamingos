@@ -4,8 +4,8 @@ The concept was to create a "Michelin Man-Style Presentation", where completely 
 
 How did I accomplish this gargantuan task? Well, do you know what it feels like to have both everything and nothing to work with at the same time? It is only through suffering that you can truly transcend human limitations and actualize a masterpiece.
 
-Breaking down the reference source:
-https://docs.google.com/presentation/d/1K_7syaLvfoEXHUsoy6DWTafLiFqeNaMDsUsW39WZJRo/edit#slide=id.p  
+Breaking down the reference source:  
+[How The Michelin Man Is Connected to Bill Gates Divorce And How He’s Going To Destroy The Economy](https://docs.google.com/presentation/d/1K_7syaLvfoEXHUsoy6DWTafLiFqeNaMDsUsW39WZJRo/edit#slide=id.p)    
 
 ## Presentation Components
 
