@@ -3,7 +3,7 @@
 
 ## Process Work 
 
-I actually had a lot to work with with this presentation, as I had multiple group chats on multiple platforms with the subject of this presentation. Unfortunately my colossally-sized brain only remembered this fact after I had finished the presentation at an ungodly hour. 
+I actually had a lot to work with here, as I had multiple group chats on multiple platforms with the subject of this presentation. Unfortunately my colossally-sized brain only remembered this fact after I had finished the slideshow at an ungodly hour. 
 Searching for patterns proved to be rather difficult, the only term that brought up a reasonable amount of content was "dog". I checked the pinned messages instead, which proved to be highly fruitful.
 
 Never have I stayed up so late to make a slideshow (something like 1:40 AM was when I went to sleep). I don't even try this hard in school. 
